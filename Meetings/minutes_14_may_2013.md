@@ -1,0 +1,93 @@
+_Draft_ _Notes_
+
+**Notes of the Meeting of the** **CONUL Digitisation Group**
+
+**Tuesday** **14th **May** **2013,** **11.00 –** **1.00 p.m.**
+
+**Henry Jones Room, TCD**
+
+**Present:**	Caleb Dervan (UL) (Chair), Arlene Healy (TCD), John B. Howard, (UCD), Colette McKenna (UCC), Meadhbh Murphy (RCSI), Eoghan Ó Carragáin (NLI), Crónán Ó Doibhlin (UCC), Petra Schnabel (RIA), Deirdre Wildy (QUB). 
+
+**Apologies:** Peter Corrigan (NUIG), Yvonne Desmond (DIT), Ann Wrigley (DIT).
+
+		**1. Introductions:**  Following introductions C. McKenna gave the context for the forming of the “Digitisation” Group following from the mini-Colloquium and the Report of the CONUL Task & Finish Group on Digital Content Services.
+
+It is noted that the work of the group may have some overlaps with other CONUL groups as identified in the Digital Content Services Report.
+
+The following items are also noted:
+
+1. **Reporting**
+
+The Group is to present to CONUL an annual statement of achievements each October.  The group will work to a 3 year work-plan reporting annually
+
+2. **Deputy Chair**
+
+John Howard will act as Deputy Chair.
+
+3. **CONUL Administrator**
+
+Additional administrative support may be available on a limited basis.
+
+4. **Budget**
+
+A limited budget may also be available from CONUL.
+
+**2. **Terms of Reference**
+
+It was agreed that the title “Digital Infrastructure and Services” would better reflect the specific work of the Group.
+
+I was also agreed to adopt initially the following Terms of Reference derived from the Digital Service Working Group Report with regard to “Digital Infrastructure and Services”:
+
+**Terms of reference**
+
+•	Identify and develop major issues and strategic priorities
+
+•	Identify and develop opportunities for cooperation and collaboration among CONUL libraries
+
+•	Identify and develop key relationships outside of CONUL
+
+•	To continue to identify affinities to or overlap with other CONUL groups’ areas of enquiry
+
+•	To continue to identify an appropriate structure for CONUL to address the topic in the longer 	term
+
+•	To identify and track work already underway, existing infrastructures and digitisation 	resources, pertinent expertise, policies, etc., as well as additional relevant issues
+
+•	To consider a range of issues relevant to Open Access, including needs, benefits, costs, 		future directions, potential for further development of value-added services, etc.
+
+There was some additional discussion on the following themes:
+
+A. **Open Access**
+
+Noting the launch of the National Principles for Open Access Policy Statement [http://dri.ie/sites/default/files/files/National%20Principles%20on%20Open%20Access%20Policy%20Statement%20(FINAL%2023%20Oct%202012%20).pdf](http://dri.ie/sites/default/files/files/National%20Principles%20on%20Open%20Access%20Policy%20Statement%20(FINAL%2023%20Oct%202012%20).pdf) .  There was also discussion of the broader emergence of OA compliance.
+
+B. **Training**
+
+Noting the possibility of availing of programmes via the DRI, ANLTC, and DigCurv.
+
+C. **Conference/Forum**
+
+The urgent need for an annual library professional conference or forum within the sector was noted.
+
+D. **An audit on Digitisation Services**
+
+An audit is required of Digitisation Services, infrastructure, resources, policy etc. based on the DRI survey for _Digital Archiving in Ireland_ [http://dri.ie/sites/default/files/files/Digital_Archiving_In_Ireland_2012.pdf](http://dri.ie/sites/default/files/files/Digital_Archiving_In_Ireland_2012.pdf) 
+
+**3. **Actions for the next meeting**
+
+(i)	Begin preparations for an audit of Digitisation Services, infrastructure, resources, policy etc. within CONUL Libraries.
+
+(ii)	Begin the drafting of the 3yr Work-plan, noting that a report is to be submitted in October.
+
+(iii) Each member should have a short “Lightening Talk” on prepared to update colleagues on current activity underway in each CONUL Library. This will form a short part of each Group meeting.
+
+1. Further thoughts or proposals on a conference or Forum should be collated.
+2. Specific training provided or that could be provided by DRI, ANTLC or other groups should be identified. The Group should have some role in the co-ordination of training. Also any additional training memberships that may be appropriate to the group or CONUL Libraries in this area should be identified.
+3. The Chair will arrange for a Google Docs forum to be set up for the group.
+
+ 
+
+**Next Meeting:	**11.00** **–** **1.00 p.m.,** **Tuesday** **24th **June** **2013, henry Jones Room, TCD**
+
+CÓD
+
+23.05.2013
